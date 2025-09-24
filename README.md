@@ -2,3 +2,4 @@
 
 The GS used for Crystal 19.10.<br>
 Since venti wants to sell something that he did nothing on, everyone can have it <3
+Lunar did creative on this, sorry my guy
